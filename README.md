@@ -1,2 +1,2 @@
 # Instagram-followers-mining-script
-Hy
+Owner Aditya sunny
